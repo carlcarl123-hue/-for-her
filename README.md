@@ -1,6 +1,6 @@
 Dear Jhazz,
 
-So ayun na nga, eto na ako, officially applying for the position na maging manliligaw mo 😭 HAHAHAHA. Wala akong resume, wala rin akong experience ay meron pala isa, pero may effort naman po 😔✋
+So ayun na nga, eto na ako, officially applying for the position na maging manliligaw mo 😭 HAHAHAHA. Wala akong resume, wala rin akong experience, ay meron pala isa, pero may effort naman po 😔✋
 
 Di ko naman ipapangako na magiging perfect ako kasi baka mauntog ako HAHAHA over sa tawa koyah. Pero I’ll do my best na mapasaya ka, samahan ka, at syempre kulitin ka kapag bored ako 😭.
 
